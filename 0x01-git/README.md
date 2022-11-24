@@ -1,2 +1,2 @@
-My second readme
-Updated commit
+I hate my job and i know
+
